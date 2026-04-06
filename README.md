@@ -67,4 +67,4 @@ To build a strong foundation in IT and Networking and prepare for entry-level ro
 ---
 
 ## 📫 Contact
-Add your email or LinkedIn here when applying for jobs.
+eslamdawood.contact@gmail.com
